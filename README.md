@@ -1,2 +1,1 @@
-# strivago-team-challenge
  
